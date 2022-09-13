@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Dinara
+- 👀 I’m interested in 3d software!
+- 🌱 I’m currently learning blender, plugins
+- 📫 How to reach me d.bektemisova@outlook.com
